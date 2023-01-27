@@ -1,4 +1,4 @@
-### I’m currently learning cyber security and Py.
+### Looking for fun.exe
 
 <!--
 **Detelock/Detelock** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
